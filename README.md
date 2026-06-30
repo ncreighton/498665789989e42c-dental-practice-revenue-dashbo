@@ -1,0 +1,2 @@
+# 498665789989e42c-dental-practice-revenue-dashbo
+The fastest way to produce professional output on day one. No setup fees. No learning curve.  Professional formatting tested across different screen sizes and printers. Fully editable: every field, color, and section customizable.  ## What's Included  - Dental Practice Revenue Dashboard And Analytics — fully configured and ready to use - Fully edit
